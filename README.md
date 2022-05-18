@@ -1,2 +1,2 @@
-20192912 Hyunae Cho
+Hyunae Cho 20192912
 Kookmin Univ. SW
